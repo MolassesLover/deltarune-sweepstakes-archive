@@ -25,7 +25,7 @@
 [https](https://deltarune.com/icee/)[://](https://deltarune.com/icee/)[deltarune](https://deltarune.com/icee/)[.](https://deltarune.com/icee/)[com](https://deltarune.com/icee/)[/](https://deltarune.com/icee/)[icee](https://deltarune.com/icee/) - Icee sighting found from the banner under free mp3 on main page
 
 - [https](https://deltarune.com/december/)[://](https://deltarune.com/december/)[deltarune](https://deltarune.com/december/)[.](https://deltarune.com/december/)[com](https://deltarune.com/december/)[/](https://deltarune.com/december/)[december](https://deltarune.com/december/)[/](https://deltarune.com/december/) - fake not found page
-- Found from the icee page, linked through the word “sister”
+- Found from the icee page, linked through the word “sister” dess ?
 
 
 [https](https://deltarune.com/code/)[://](https://deltarune.com/code/)[deltarune](https://deltarune.com/code/)[.](https://deltarune.com/code/)[com](https://deltarune.com/code/)[/](https://deltarune.com/code/)[code](https://deltarune.com/code/)[/](https://deltarune.com/code/) Features a blog implied to belong to Noelle/Dess. The catpetterz and egg pages are implied to be other parts of this blog.
@@ -37,7 +37,7 @@ Features a number which seems to be going up, likely reflecting the amount of hi
 - *Space core: 555 is the fake area code for movies and stuff, probably not intended to be a real number*
 
 
-[https](https://deltarune.com/catpetterz/#)[://](https://deltarune.com/catpetterz/#)[deltarune](https://deltarune.com/catpetterz/#)[.](https://deltarune.com/catpetterz/#)[com](https://deltarune.com/catpetterz/#)[/](https://deltarune.com/catpetterz/#)[catpetterz](https://deltarune.com/catpetterz/#)[/#](https://deltarune.com/catpetterz/#) - Cat Petterz 2, found from cardboard box link on main page -  links to egg [Audio Warning] The mp3 audio on the cat petterz 2 page is heavily glitched out and loud - well ya, the audio file says its called “Cat Petterz 2 OST (Corrupted - No Cats” < wonder if we could possibly uncorrupt it to get the original
+[https](https://deltarune.com/catpetterz/#)[://](https://deltarune.com/catpetterz/#)[deltarune](https://deltarune.com/catpetterz/#)[.](https://deltarune.com/catpetterz/#)[com](https://deltarune.com/catpetterz/#)[/](https://deltarune.com/catpetterz/#)[catpetterz](https://deltarune.com/catpetterz/#)[/#](https://deltarune.com/catpetterz/#) - Cat Petterz 2, found from cardboard box link on main page -  links to egg [Audio Warning] The mp3 audio on the cat petterz 2 page is heavily glitched out and loud - well ya, the audio file says its called “Cat Petterz 2 OST (Corrupted - No Cats” < wonder if we could possibly uncorrupt it to get the original 
 
 - [https](https://deltarune.com/egg/)[://](https://deltarune.com/egg/)[deltarune](https://deltarune.com/egg/)[.](https://deltarune.com/egg/)[com](https://deltarune.com/egg/)[/](https://deltarune.com/egg/)[egg](https://deltarune.com/egg/)[/](https://deltarune.com/egg/) - Information about eggs, does this have to do with the shadow man eggs in ch 1 and 2? (assuming it does since you find egg page through “man” page < this page has been around since before the sweepstakes)
 
@@ -62,7 +62,7 @@ Features a number which seems to be going up, likely reflecting the amount of hi
 
 [https](https://deltarune.com/sighting/)[://](https://deltarune.com/sighting/)[deltarune](https://deltarune.com/sighting/)[.](https://deltarune.com/sighting/)[com](https://deltarune.com/sighting/)[/](https://deltarune.com/sighting/)[sighting](https://deltarune.com/sighting/)[/](https://deltarune.com/sighting/)  (scary warning) - Found from socks link, shows pictures of the Spamton plush on a toilet.
 
-![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.001.png)
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.001.png)
 
 
 [https](https://deltarune.com/secretpipis/)[://](https://deltarune.com/secretpipis/)[deltarune](https://deltarune.com/secretpipis/)[.](https://deltarune.com/secretpipis/)[com](https://deltarune.com/secretpipis/)[/](https://deltarune.com/secretpipis/)[secretpipis](https://deltarune.com/secretpipis/)[/](https://deltarune.com/secretpipis/) - Found on banner under free mp3 on main page - Pipis!!!!!!!!!!!!!!!!!!!!
@@ -100,7 +100,7 @@ Found from Lancer cookie link on main page, (can be rarely found from changing r
 [https](https://deltarune.com/sweepstakes/credits/)[://](https://deltarune.com/sweepstakes/credits/)[deltarune](https://deltarune.com/sweepstakes/credits/)[.](https://deltarune.com/sweepstakes/credits/)[com](https://deltarune.com/sweepstakes/credits/)[/](https://deltarune.com/sweepstakes/credits/)[sweepstakes](https://deltarune.com/sweepstakes/credits/)[/](https://deltarune.com/sweepstakes/credits/)[credits](https://deltarune.com/sweepstakes/credits/)[/](https://deltarune.com/sweepstakes/credits/) - credits, from bottom of main page
 
 
-[https](https://deltarune.com/kris_dreemurr_kris/)[://](https://deltarune.com/kris_dreemurr_kris/)[deltarune](https://deltarune.com/kris_dreemurr_kris/)[.](https://deltarune.com/kris_dreemurr_kris/)[com](https://deltarune.com/kris_dreemurr_kris/)[/](https://deltarune.com/kris_dreemurr_kris/)[kris](https://deltarune.com/kris_dreemurr_kris/)[_](https://deltarune.com/kris_dreemurr_kris/)[dreemurr](https://deltarune.com/kris_dreemurr_kris/)[_](https://deltarune.com/kris_dreemurr_kris/)[kris](https://deltarune.com/kris_dreemurr_kris/)[/](https://deltarune.com/kris_dreemurr_kris/) - from the locket page - lore about Kris and presumably Noelle
+[https](https://deltarune.com/kris_dreemurr_kris/)[://](https://deltarune.com/kris_dreemurr_kris/)[deltarune](https://deltarune.com/kris_dreemurr_kris/)[.](https://deltarune.com/kris_dreemurr_kris/)[com](https://deltarune.com/kris_dreemurr_kris/)[/](https://deltarune.com/kris_dreemurr_kris/)[kris](https://deltarune.com/kris_dreemurr_kris/)[_](https://deltarune.com/kris_dreemurr_kris/)[dreemurr](https://deltarune.com/kris_dreemurr_kris/)[_](https://deltarune.com/kris_dreemurr_kris/)[kris](https://deltarune.com/kris_dreemurr_kris/)[/](https://deltarune.com/kris_dreemurr_kris/) - from the locket page - lore about Kris and presumably Noelle 
 
 
 
@@ -144,7 +144,7 @@ If someone has the time, please put the contents in order of chronology if possi
 ## *audio file links(with inspect element (please use ogg versions for sounds that have them))*
 - [https](https://deltarune.com/assets/audio/face.ogg)[://](https://deltarune.com/assets/audio/face.ogg)[deltarune](https://deltarune.com/assets/audio/face.ogg)[.](https://deltarune.com/assets/audio/face.ogg)[com](https://deltarune.com/assets/audio/face.ogg)[/](https://deltarune.com/assets/audio/face.ogg)[assets](https://deltarune.com/assets/audio/face.ogg)[/](https://deltarune.com/assets/audio/face.ogg)[audio](https://deltarune.com/assets/audio/face.ogg)[/](https://deltarune.com/assets/audio/face.ogg)[face](https://deltarune.com/assets/audio/face.ogg)[.](https://deltarune.com/assets/audio/face.ogg)[ogg](https://deltarune.com/assets/audio/face.ogg) - laugh 
 - [https](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[://](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[deltarune](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[.](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[com](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[/](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[assets](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[/](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[audio](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[/](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[midi](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[-](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[holiday](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[_](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[country](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[.](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[mp](https://deltarune.com/assets/audio/midi-holiday_country.mp3)[3](https://deltarune.com/assets/audio/midi-holiday_country.mp3) (no ogg counterpart) has anyone tried converting this to a midi file and opening it in music making software? Doesn’t show anything
-  Interestin
+  Interesting
 
 Spectrogram also doesn’t show anything
 
@@ -165,6 +165,8 @@ its just a corrupted version of the holiday-country.mp3 down below, doubt theres
   [https](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[://](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[deltarune](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[.](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[com](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[/](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[assets](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[/](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[audio](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[/](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[midi](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[-](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[pandora](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[-](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[palace](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[_](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[byShinkoNetCavy](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[.](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[mp](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3)[3](https://deltarune.com/assets/audio/midi-pandora-palace_byShinkoNetCavy.mp3) - same thing, but Pandora Palace
   [https](https://deltarune.com/assets/audio/midi-spamton.mp3)[://](https://deltarune.com/assets/audio/midi-spamton.mp3)[deltarune](https://deltarune.com/assets/audio/midi-spamton.mp3)[.](https://deltarune.com/assets/audio/midi-spamton.mp3)[com](https://deltarune.com/assets/audio/midi-spamton.mp3)[/](https://deltarune.com/assets/audio/midi-spamton.mp3)[assets](https://deltarune.com/assets/audio/midi-spamton.mp3)[/](https://deltarune.com/assets/audio/midi-spamton.mp3)[audio](https://deltarune.com/assets/audio/midi-spamton.mp3)[/](https://deltarune.com/assets/audio/midi-spamton.mp3)[midi](https://deltarune.com/assets/audio/midi-spamton.mp3)[-](https://deltarune.com/assets/audio/midi-spamton.mp3)[spamton](https://deltarune.com/assets/audio/midi-spamton.mp3)[.](https://deltarune.com/assets/audio/midi-spamton.mp3)[mp](https://deltarune.com/assets/audio/midi-spamton.mp3)[3](https://deltarune.com/assets/audio/midi-spamton.mp3) - MIDI Spamton
   [https](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[://](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[deltarune](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[.](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[com](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[/](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[assets](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[/](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[audio](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[/](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[midi](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[-](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[spamton](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[-](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[battle](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[.](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[mp](https://deltarune.com/assets/audio/midi-spamton-battle.mp3)[3](https://deltarune.com/assets/audio/midi-spamton-battle.mp3) - MIDI Spamton’s battle theme (NOW’S YOUR CHaNCE TO BE a)
+- [https](https://deltarune.com/assets/audio/pianpian.mp3)[://](https://deltarune.com/assets/audio/pianpian.mp3)[deltarune](https://deltarune.com/assets/audio/pianpian.mp3)[.](https://deltarune.com/assets/audio/pianpian.mp3)[com](https://deltarune.com/assets/audio/pianpian.mp3)[/](https://deltarune.com/assets/audio/pianpian.mp3)[assets](https://deltarune.com/assets/audio/pianpian.mp3)[/](https://deltarune.com/assets/audio/pianpian.mp3)[audio](https://deltarune.com/assets/audio/pianpian.mp3)[/](https://deltarune.com/assets/audio/pianpian.mp3)[pianpian](https://deltarune.com/assets/audio/pianpian.mp3)[.](https://deltarune.com/assets/audio/pianpian.mp3)[mp](https://deltarune.com/assets/audio/pianpian.mp3)[3](https://deltarune.com/assets/audio/pianpian.mp3) - found on the [kris](https://deltarune.com/kris_dreemurr_kris/)[ ](https://deltarune.com/kris_dreemurr_kris/)[dreemurr](https://deltarune.com/kris_dreemurr_kris/)[ ](https://deltarune.com/kris_dreemurr_kris/)[site](https://deltarune.com/kris_dreemurr_kris/)
+
 
 
 ## *Image files links*
@@ -295,7 +297,7 @@ We should Compile a list of references (I.e spamton not surviving being a refere
 Yes, that makes sense
 
 VVVVV what the dog doin
-I![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.002.png)
+I![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.002.png)
 
 Man this text thing is confusing to use
 
@@ -328,13 +330,13 @@ spinning lancer gif my beloved
 
 Buy one spamton for 50000,00000 ,0 dollars
 
-![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.003.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.004.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.005.png) ![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.006.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.007.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.008.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.009.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.010.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.011.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.012.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.013.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.014.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.015.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.016.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.017.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.018.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.019.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.020.png)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.021.png)
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.003.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.004.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.005.png) ![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.006.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.007.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.008.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.009.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.010.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.011.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.012.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.013.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.014.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.015.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.016.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.017.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.018.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.019.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.020.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.021.png)
 
 ` `no way spamton hitting the griddy, can you believe it investors!?!
 
 Any XXL Basketball Head fans in chat
 
-This page is being taken over by the SPAMTON (and OMORI) community (out of love of both communities) consider yourself OMOR’D (and spam’d)![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.022.png) ![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.023.png)
+This page is being taken over by the SPAMTON (and OMORI) COMMUNITY CONSIDER YOURSELVES OMORI’D (and spam’d)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.022.png) 
 
 
 ok spam has new friend :)
@@ -360,7 +362,7 @@ Hey! Dont steal my color! No how are people gonna tell us apart
 
 We are all one hivemind i mean idk…
 
-![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.024.png)
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.023.png)
 
 Collective consciousness
 
@@ -374,7 +376,7 @@ while we wait does anyone have any opinions on sneasler (the one ride pokemon fr
 
 ` `man people are stealing each others identities, oh and also! Nearly at the goal!
 
-2k left!! YEAH!!!!!!!!!!![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.025.png)
+2k left!! YEAH!!!!!!!!!!![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.024.png)
 
 Lets just hope we get a link for this one, and we keep digging, and keep digging, and keep digging, and KEEP digging! (and keep digging) (dont stop digging) (im being serious) (please) (five nights at freddys 2)
 
@@ -383,7 +385,7 @@ Lets just hope we get a link for this one, and we keep digging, and keep digging
 Whos gonna be the first to post the new links, i bet its gonna be a chaos
 
 spamton after he gets trapped in the cube: AHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH!!!!!!!!!!!!!!!!!!!!!!!!##############
-Walter white:![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.026.png)
+Walter white:![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.025.png)
 
 You all should really lock this docs this is chaos
 
@@ -400,7 +402,7 @@ WE DID IT 80K
 
 oh my oh my vvv
 
-![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.027.png)
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.026.png)
 
 Guyse did u knwo da Spamtong gif based off of [https](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[://](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[www](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[.](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[youtube](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[.](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[com](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[/](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[watch](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[?](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[v](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[=2](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[GF](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[3](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[rWj](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[0](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[A](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[_](https://www.youtube.com/watch?v=2GF3rWj0A_Y)[Y](https://www.youtube.com/watch?v=2GF3rWj0A_Y)
 
@@ -416,9 +418,65 @@ Lets get searching gang!
 
 Does anyone know what the midi on the kris page is meant to sound like, it sounds like someone banged their skull on a piano
 
-i might be able to get something out of it if i convert it .. it sounds like it could be a midi image maybe? that or a spectrogram, its way too cryptic not to be meaningful espec
+i might be able to get something out of it if i convert it .. it sounds like it could be a midi image maybe? that or a spectrogram, its way too cryptic not to be meaningful especially since its on a post labeled as “private” in noelles blog. i’ll keep things updated and get back to you
 
-![](Aspose.Words.b6d16d81-cb43-4d22-bebe-305a7c97a787.028.png)Best boy < I nee dhim
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.027.png)Best boy < I nee dhim
 
-` `:true:
+` `:gatsbytruth:
+
+i love ralsei based
+
+I think we found the shadowmen page before we were meant too
+
+Let the poor man wear his socks in peace
+
+`  `my beloveds
+
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.028.png)
+^^^ the skrungles’
+
+Well this page got destroyed quickly
+
+This is just the chatroom, we arent breaking anything (hopefully)
+
+:C
+
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.029.png)I love him
+
+Yeah we’re good
+
+Hi friends
+
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.030.png)
+
+Assshhhhbsibsjo <3 <3
+
+Mfer loves his socks
+
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.031.png)
+
+^^ on god!
+
+react to this post with dancing spamton gif if you are a Ralsei Enjoyer ![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.032.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.033.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.034.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.035.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.036.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.037.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.038.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.039.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.040.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.041.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.042.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.043.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.044.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.045.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.046.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.047.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.048.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.049.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.050.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.051.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.052.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.053.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.054.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.055.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.056.png) ![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.057.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.058.png)![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.059.png)radioactive spamton greenspamton rainbow (pride spamton)
+
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.060.png)<--- my reaction!
+
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.061.png)<-- omor spamton (he did not succumb) :bangbang: :mypipisfelloff:
+
+Omor eradication
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.062.png)< WHAT????? EVIL OMOR???
+
+^ on god WHAT!?!?!?!? :??? HUH  EVIL  AHHHH ITS LARGE WTF… OH IT SHRUNK AGAIN… 
+
+![](Aspose.Words.0b3cf8df-0c70-4f3a-9309-befe3f81ff74.063.png)<He is powering this webpage
+
+LINK ?????
+
+uy 
+
+Guys I made a GitHub archive of you guys talking and being stupid leh mayo
+
+Thanks for archiving this chaos
+
+THANKs so much kind helper!
 
